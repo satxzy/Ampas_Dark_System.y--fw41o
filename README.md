@@ -1,1 +1,1 @@
-# Ampas_Dark_System.y--fw41o
+Github Ini Telah Diawasi Oleh Dark System Jika Ingin Melepas Nya Maka Join Ch @yatimitu123
